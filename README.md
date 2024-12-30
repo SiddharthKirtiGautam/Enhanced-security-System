@@ -62,6 +62,5 @@ Results:
 
 ![image](https://github.com/user-attachments/assets/e5a391cb-4059-457c-8a3a-c8848e036d04)
 
-Internship Completion Certificate
-![image](https://github.com/user-attachments/assets/6ae5c334-f8ac-47df-8ecc-488591ef2951)
+
 
